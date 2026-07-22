@@ -16,3 +16,8 @@
 - 📅 **ภาคเรียนปัจจุบัน :** ภาคเรียนที่ 1/2568 📌
 
 ---
+
+## 📬 ช่องทางการติดต่อ (Contact)
+
+- 📧 **Email :** [first.f7337@gmail.com](mailto:first.f7337@gmail.com)
+- 📘 **Facebook :** [facebook.com/strawy.barryie](https://www.facebook.com/strawy.barryie)
